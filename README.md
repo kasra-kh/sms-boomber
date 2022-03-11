@@ -2,7 +2,7 @@
 ## sms boomber just for fun :)
 
 
-###Discord
+### Discord
 *[Negative](https://discord.gg/9X3DXTtB)
 
 ### Image :)
